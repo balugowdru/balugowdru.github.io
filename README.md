@@ -1,2 +1,2 @@
-# adityabastawad.github.io
+# balugowdru.github.io
  personal portfolio
